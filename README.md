@@ -16,7 +16,7 @@
 
 
 ![27117626](https://github.com/user-attachments/assets/aa0046db-37bb-404d-a1bf-a54e139f04b2)
-"I let you know me... see me... i gave you a rare gift, will.. but you didnt want it"![73b540cc](https://github.com/user-attachments/assets/ef4cfeb0-e376-4865-96b1-a39bbd3bbd30)
+"I let you know me... see me... i gave you a rare gift.. but you didnt want it"![73b540cc](https://github.com/user-attachments/assets/ef4cfeb0-e376-4865-96b1-a39bbd3bbd30)
 
 ![5b5e2137a187618ea663e8163f678e83](https://github.com/user-attachments/assets/ace83170-219e-406f-bfa8-9162cd38e952)
 
