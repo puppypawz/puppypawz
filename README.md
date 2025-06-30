@@ -10,3 +10,6 @@
 
 ![blinkies-hannigram](https://github.com/user-attachments/assets/4074879c-a7e3-4a36-b4a3-cd42f3b17721) I LOBE HANNIBAL!!!!!! IM LITERALLY wILL GRAHAM!! >.< ![blinkies-hannigram](https://github.com/user-attachments/assets/5a317192-4077-4559-b787-a495ade6e66a)
 
+
+![1fa5c81e](https://github.com/user-attachments/assets/788dd2f3-f692-4209-a032-1c4a9da949cc)![1fa5c81e](https://github.com/user-attachments/assets/788dd2f3-f692-4209-a032-1c4a9da949cc)![1fa5c81e](https://github.com/user-attachments/assets/788dd2f3-f692-4209-a032-1c4a9da949cc)
+
