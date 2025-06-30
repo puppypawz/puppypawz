@@ -19,4 +19,13 @@
 
 ![the-eltingville-club-eltingville-club](https://github.com/user-attachments/assets/4a5eca8f-68e5-4a21-ba18-bea391b85723) 
 
+" THATZ NOT TASHA YAR NAKED!!! ![a3599657](https://github.com/user-attachments/assets/74ab8cc5-1a56-4241-8655-02f90450fe7c)
+ THATZ THE HARE BEAR BUNCH XD ![4b307daa](https://github.com/user-attachments/assets/91c703a1-7ecf-44e1-9f85-42c76ecbe24d)
+ "
+
+![a264f6ee](https://github.com/user-attachments/assets/f5ce6b3a-b5c3-4078-85c7-5b1e39cbf39e) LITERALLY BILL DICKEY HEHEHEHEEEEEEEE I LOVE HIM SM ^o^ ![1d17ba84](https://github.com/user-attachments/assets/cf59ed89-a565-4e80-8d60-95b39e22152c) 
+
+
+![dd67bb17](https://github.com/user-attachments/assets/c0a385af-6b65-4bbb-972c-c07c8c40dce0)![dd67bb17](https://github.com/user-attachments/assets/c0a385af-6b65-4bbb-972c-c07c8c40dce0)
+
 
