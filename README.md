@@ -9,7 +9,7 @@
 ![90dd1609](https://github.com/user-attachments/assets/6f5b1b53-c6f3-40e7-886a-24a85dc2e73a) I LOVE HANNIBAL, HEU, THE ELTINGILLE CLUB, KEVIN SPENCER, AND HOMESTUCK ![8de0c337](https://github.com/user-attachments/assets/c9f4c82d-04ae-4462-8fba-17fe0bcc40b7)
 
 
-DNI: PROSHIPPERS, DARKSHIPPERS, BASIC CRITERIA, TCOAAL FANS
+![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f) DNI: PROSHIPPERS, DARKSHIPPERS, BASIC CRITERIA, TCOAAL FANS ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f)
 
 
 ![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)
