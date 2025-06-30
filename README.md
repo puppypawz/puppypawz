@@ -11,5 +11,12 @@
 ![blinkies-hannigram](https://github.com/user-attachments/assets/4074879c-a7e3-4a36-b4a3-cd42f3b17721) I LOBE HANNIBAL!!!!!! IM LITERALLY wILL GRAHAM!! >.< ![blinkies-hannigram](https://github.com/user-attachments/assets/5a317192-4077-4559-b787-a495ade6e66a)
 
 
-![1fa5c81e](https://github.com/user-attachments/assets/788dd2f3-f692-4209-a032-1c4a9da949cc)![1fa5c81e](https://github.com/user-attachments/assets/788dd2f3-f692-4209-a032-1c4a9da949cc)![1fa5c81e](https://github.com/user-attachments/assets/788dd2f3-f692-4209-a032-1c4a9da949cc)
+![1fa5c81e](https://github.com/user-attachments/assets/788dd2f3-f692-4209-a032-1c4a9da949cc)![1fa5c81e](https://github.com/user-attachments/assets/788dd2f3-f692-4209-a032-1c4a9da949cc)
+
+
+" ITS NOT FAIIRR!! ![22aa77ce](https://github.com/user-attachments/assets/094b9ebf-625b-461a-9033-7eea5a8b49c4)
+ JOSH'S FAT STUPIDITY GOT ME KILLED!! I SHOULD BE RESURRECTED!! >o< "
+
+![the-eltingville-club-eltingville-club](https://github.com/user-attachments/assets/4a5eca8f-68e5-4a21-ba18-bea391b85723) 
+
 
