@@ -11,6 +11,8 @@
 
 ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f) DNI: PROSHIPPERS, DARKSHIPPERS, BASIC CRITERIA, TCOAAL FANS ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f)
 
+if  you wanna talk to me, please WHISPER TO ME! im usually off tab watching something so replies may be slow!! ^_^; 
+
 
 ![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)![dripping-blood-bloody](https://github.com/user-attachments/assets/a10df2f8-f2fc-46a7-9075-16fde3b71d13)
 
