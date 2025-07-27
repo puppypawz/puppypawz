@@ -9,7 +9,7 @@
 ![90dd1609](https://github.com/user-attachments/assets/6f5b1b53-c6f3-40e7-886a-24a85dc2e73a) I LOVE HANNIBAL, HEU, THE ELTINGVILLE CLUB, KEVIN SPENCER, ZERO DAY, AND HOMESTUCK ![8de0c337](https://github.com/user-attachments/assets/c9f4c82d-04ae-4462-8fba-17fe0bcc40b7)
 
 
-![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f) DNI: PROSHIPPERS, DARKSHIPPERS, BASIC CRITERIA, TCC (UNLESS YOU ARE MY FRIENDS. I STILL DO NOT CONDONE ANY OF THAT STUFF !!) , AND TCOAAL FANS ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f)
+![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f) DNI: PROSHIPPERS, DARKSHIPPERS, BASIC CRITERIA, AND TCOAAL FANS ! (tcc is safe ti interact!! as long as you do not condone any of that shit you and interact ^_^) [8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f)
 
 if  you wanna talk to me, please WHISPER TO ME! im usually off tab watching something so replies may be slow!! ^_^; 
 
