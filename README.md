@@ -1,12 +1,4 @@
-![ac5e79de](https://github.com/user-attachments/assets/5c81e7df-2b26-47fe-a652-8cdc9351cfd1) "IM UGLY, DISGUSTING, AND FLITHY FOR SURE..." ![ac5e79de](https://github.com/user-attachments/assets/5c81e7df-2b26-47fe-a652-8cdc9351cfd1)
-
-![c6772406](https://github.com/user-attachments/assets/00c4f175-ab63-4d43-9557-21edd2b91a4f) KAZPER / wILL / BILL / ANDRE !!![b86cd854](https://github.com/user-attachments/assets/1cf144f3-e1d4-4adf-8604-b4c355313059)
-
-
-![6c92ca8b](https://github.com/user-attachments/assets/72cc01a7-074f-401d-aaa0-7503509f62d4) SILLY MUTT THING !!! ![5cb9f6ed](https://github.com/user-attachments/assets/9d720cb9-ba47-4135-8536-ba45192a1a23)
-
-
-![90dd1609](https://github.com/user-attachments/assets/6f5b1b53-c6f3-40e7-886a-24a85dc2e73a) I LOVE HANNIBAL, HEU, THE ELTINGVILLE CLUB, ELEPHANT 2003, KEVIN SPENCER, ZERO DAY, AND HOMESTUCK ![8de0c337](https://github.com/user-attachments/assets/c9f4c82d-04ae-4462-8fba-17fe0bcc40b7)
+![Untitled131_20250802163734](https://github.com/user-attachments/assets/078e081d-2f01-4042-bfa4-5e0535e0e717)
 
 
 ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f) DNI: PROSHIPPERS, DARKSHIPPERS, BASIC CRITERIA, HAZBIN HOTEL / HELLUVA BOSS FANS, AND TCOAAL FANS ! (tcc is safe to interact!! as long as you do not condone any of that shit you can interact ^_^) ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f)
