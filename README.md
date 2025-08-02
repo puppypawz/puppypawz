@@ -1,4 +1,5 @@
-![Untitled131_20250802163734](https://github.com/user-attachments/assets/078e081d-2f01-4042-bfa4-5e0535e0e717)
+<img width="460" height="460" alt="186776807" src="https://github.com/user-attachments/assets/8ab4b4c3-697f-4a15-894a-46f9d48b33f8" />
+
 
 
 ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f) DNI: PROSHIPPERS, DARKSHIPPERS, BASIC CRITERIA, HAZBIN HOTEL / HELLUVA BOSS FANS, AND TCOAAL FANS ! (tcc is safe to interact!! as long as you do not condone any of that shit you can interact ^_^) ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f)
