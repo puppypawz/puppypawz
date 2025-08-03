@@ -8,21 +8,32 @@
 </p>
 
 
-<p align="center">
-
-  ![a7c53c09](https://github.com/user-attachments/assets/eb7b72b7-0f11-44b3-9735-2bfab39792e4)  andre / kazper / bill ^_^  ![f354904b](https://github.com/user-attachments/assets/366bbbf6-78f2-4744-b099-8fa828324d89)
-
-</p>
 
 
 <p align="center">
-  i love zero day , hannibal , kevin spencer , welcome to eltingville , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff
+( ´ཀ` )  andre / kazper / bill ^_^ !! ☠︎︎
 </p>
 
 
 
 
-if  you wanna talk to me, please WHISPER TO ME! im usually off tab watching something so replies may be slow!! ^_^; 
+<p align="center">
+  ( ˶ˆᗜˆ˵ ) i love zero day , hannibal , jake gyllenhaal , welcome to eltingville , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
+</p>
+
+
+
+
+<p align="center">
+  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans , proship + darkship  "( – ⌓ – ) 
+</p>
+
+
+
+
+<p align="center">
+  im off-tab most of the time watching something so whisper to me if you can !! (im also a huge movie freak hehe...) 
+</p>
 
 
 
