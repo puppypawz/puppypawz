@@ -3,14 +3,23 @@
 </p>
 
 
+<p align="center">
+✃𓄧꒷꒦  ᐡ ᐧ ﻌ ᐧ ᐡ  🫀
+</p>
+
+
+<p align="center">
+![a7c53c09](https://github.com/user-attachments/assets/eb7b72b7-0f11-44b3-9735-2bfab39792e4)  andre / kazper / bill ^_^  ![f354904b](https://github.com/user-attachments/assets/366bbbf6-78f2-4744-b099-8fa828324d89)
+
+</p>
+
+
+<p align="center">
+  i love zero day , hannibal , kevin spencer , welcome to eltingville , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff
+</p>
 
 
 
-
-
-
-
-![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f) DNI: PROSHIPPERS, DARKSHIPPERS, BASIC CRITERIA, HAZBIN HOTEL / HELLUVA BOSS FANS, AND TCOAAL FANS ! (tcc is safe to interact!! as long as you do not condone any of that shit you can interact ^_^) ![8270cb83](https://github.com/user-attachments/assets/4a9a2c17-52f1-43d4-aae5-e518241f953f)
 
 if  you wanna talk to me, please WHISPER TO ME! im usually off tab watching something so replies may be slow!! ^_^; 
 
