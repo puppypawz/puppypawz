@@ -15,11 +15,6 @@
 </p>
 
 
-<p align="center">
-        
-</p>
-
-
 
 <p align="center">
   ( ˶ˆᗜˆ˵ ) i love zero day , hannibal , jake gyllenhaal , welcome to eltingville , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
@@ -29,7 +24,7 @@
 
 
 <p align="center">
-  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans , proship + darkship  "( – ⌓ – ) 
+  (っ- ‸ - ς)  **dni ... : hazbin/helluva fandom , basic dni , tcoaal fans , proship + darkship**  "( – ⌓ – ) 
 </p>
 
 
