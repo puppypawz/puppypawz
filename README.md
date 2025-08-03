@@ -9,7 +9,8 @@
 
 
 <p align="center">
-![a7c53c09](https://github.com/user-attachments/assets/eb7b72b7-0f11-44b3-9735-2bfab39792e4)  andre / kazper / bill ^_^  ![f354904b](https://github.com/user-attachments/assets/366bbbf6-78f2-4744-b099-8fa828324d89)
+
+  ![a7c53c09](https://github.com/user-attachments/assets/eb7b72b7-0f11-44b3-9735-2bfab39792e4)  andre / kazper / bill ^_^  ![f354904b](https://github.com/user-attachments/assets/366bbbf6-78f2-4744-b099-8fa828324d89)
 
 </p>
 
