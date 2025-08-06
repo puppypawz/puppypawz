@@ -12,7 +12,7 @@
 
 
 <p align="center">
-( ´ཀ` )  andre / kazper / bill ^_^ !! ☠︎︎
+( ´ཀ` ) donnie / andre / kazper / bill ^_^ !! ☠︎︎
 </p>
 
 
