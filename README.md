@@ -1,10 +1,5 @@
 
-
-![transparent-blood-dripping-gif-blood](https://github.com/user-attachments/assets/5f812653-6063-4953-8df1-0ecf92e0223b)![transparent-blood-dripping-gif-blood](https://github.com/user-attachments/assets/3b2cdd91-0274-45a8-9b83-ed004a978444)![transparent-blood-dripping-gif-blood](https://github.com/user-attachments/assets/0b795b72-a477-40f2-bd1f-602a317888f0)
-
-
-
-
+<img width="400" height="24" alt="b46872bc" src="https://github.com/user-attachments/assets/d3effe2b-2050-4cd8-99fe-b6600c1f6995" /><img width="400" height="24" alt="b46872bc" src="https://github.com/user-attachments/assets/d3effe2b-2050-4cd8-99fe-b6600c1f6995" />
 
 
 
