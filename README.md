@@ -24,7 +24,7 @@
 
 
 <p align="center">
-  ( ˶ˆᗜˆ˵ ) i love zero day , hannibal , jake gyllenhaal , welcome to eltingville , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
+  ( ˶ˆᗜˆ˵ ) i love zero day , hannibal , jake gyllenhaal , welcome to eltingville , homestuck , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
 </p>
 
 
