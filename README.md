@@ -1,8 +1,8 @@
 
 
 <p align="center">
-  <img src=<img width="500" height="500" alt="2025_08_10_12b_Kleki" src="https://github.com/user-attachments/assets/4afc55be-70bb-41d8-8f78-0cdb1df3e78c" />
- width="400" />
+  <img src=<img width="500" height="500" alt="2025_08_10_12b_Kleki" src="https://github.com/user-attachments/assets/1723eceb-0500-4a81-ae56-5beeee5fe4b2" />
+
 
 </p>
 
