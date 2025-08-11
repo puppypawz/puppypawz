@@ -1,7 +1,9 @@
 
 
 <p align="center">
-  <img src=<img width="500" height="500" alt="2025_08_10_12b_Kleki" src="https://github.com/user-attachments/assets/1723eceb-0500-4a81-ae56-5beeee5fe4b2" />
+
+  <img width="500" height="500" alt="2025_08_10_12b_Kleki" src="https://github.com/user-attachments/assets/67fa3a44-35b6-476d-b37e-e2af08440c2c" />
+
 
 
 </p>
