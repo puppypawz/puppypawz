@@ -11,9 +11,8 @@
 
 
 
-<p align="center">
-![](https://komarev.com/ghpvc/?username=puppypawz&color=green)
-</p>
+
+![](https://komarev.com/ghpvc/?username=puppypawz&color=lightgrey)
 
 
 
