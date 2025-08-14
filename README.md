@@ -12,7 +12,7 @@
 
 
 <p align="center">
-✃𓄧꒷꒦  ᐡ ᐧ ﻌ ᐧ ᐡ  🫀
+![](https://komarev.com/ghpvc/?username=puppypawz&color=green)
 </p>
 
 
