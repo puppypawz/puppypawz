@@ -9,6 +9,7 @@
 
 </p>
 
+[![spotify-github-profile](https://spotify-github-profile.puppypawz.com/api/view?uid=f6c99jwjbrhvob4nevwpmyd1q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/puppypawz/spotify-github-profile)
 
 <p align="center">
 ✃𓄧꒷꒦  ᐡ ᐧ ﻌ ᐧ ᐡ  🫀
