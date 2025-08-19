@@ -40,7 +40,9 @@
   im off-tab most of the time watching something so whisper to me if you can !! (im also a huge movie freak hehe...) 
 </p>
 
-
+<p align="center">
+ im also going through a lot right now so i might be dry ^_^; between work and something quite drastic happening i might be upset a lot !! so i do apologize if i act off or distant. i promise im trying my best to make everyone happy!! 
+</p>
 
 
 ![e0f37ba8](https://github.com/user-attachments/assets/76d1ffda-7504-4459-a12d-6630796f845e)![e0f37ba8](https://github.com/user-attachments/assets/76d1ffda-7504-4459-a12d-6630796f845e)
