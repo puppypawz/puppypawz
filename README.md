@@ -23,7 +23,7 @@
 
 
 <p align="center">
-  ( ˶ˆᗜˆ˵ ) i love zero day , hannibal , jake gyllenhaal , welcome to eltingville , homestuck , william hellfire + joey smack , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
+  ( ˶ˆᗜˆ˵ ) i love zero day , hannibal , jake gyllenhaal , the academy maniacs case, welcome to eltingville , homestuck , william hellfire + joey smack , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
 </p>
 
 
@@ -44,6 +44,9 @@
  im also going through a lot right now so i might be dry ^_^; between work and something quite drastic happening i might be upset a lot !! so i do apologize if i act off or distant. i promise im trying my best to make everyone happy!! 
 </p>
 
+<p align="center">
+i am part of the true crime commuinty, for i find many cases (mainly academy maniacs and andrew blaze) to be intresting. i do NOT condone any actions by perpertators. may those poor souls who lost their lives in these cases rest dearly; for they never deserved what happened to them. please do NOT interact if you support any actions made by these people.
+</p>
 
 ![e0f37ba8](https://github.com/user-attachments/assets/76d1ffda-7504-4459-a12d-6630796f845e)![e0f37ba8](https://github.com/user-attachments/assets/76d1ffda-7504-4459-a12d-6630796f845e)
 
