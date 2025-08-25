@@ -3,11 +3,8 @@
 
 
 <p align="center">
-
- <img width="339" height="353" alt="2025_08_10_12b_Kleki" src="https://github.com/user-attachments/assets/e344e32d-a66f-4410-b8d0-ad6c24e555a5" />
-
-
-
+ 
+<img width="339" height="353" alt="2025_08_25_02z_Kleki" src="https://github.com/user-attachments/assets/a813b693-a605-436c-bfdc-aba4a61dcd7e" />
 
 </p>
 
