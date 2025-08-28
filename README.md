@@ -15,7 +15,7 @@
 
 
 <p align="center">
-( ´ཀ` ) donnie / andre / kazper / bill ^_^ !! ☠︎︎
+( ´ཀ` ) donnie / andre / simon ^_^ !! ☠︎︎
 </p>
 
 
