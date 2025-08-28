@@ -4,7 +4,8 @@
 
 <p align="center">
  
-<img width="339" height="353" alt="2025_08_25_02z_Kleki" src="https://github.com/user-attachments/assets/a813b693-a605-436c-bfdc-aba4a61dcd7e" />
+<img width="339" height="353" alt="image" src="https://github.com/user-attachments/assets/2c85d376-80db-4776-8c42-c4f784796a77" />
+" />
 
 </p>
 
