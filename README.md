@@ -46,7 +46,8 @@
 i am part of the true crime commuinty, for i find many cases (mainly academy maniacs and andrew blaze) to be intresting. i do NOT condone any actions by perpertators. may those poor souls who lost their lives in these cases rest dearly; for they never deserved what happened to them. please do NOT interact if you support any actions made by these people.
 </p>
 
-![e0f37ba8](https://github.com/user-attachments/assets/76d1ffda-7504-4459-a12d-6630796f845e)![e0f37ba8](https://github.com/user-attachments/assets/76d1ffda-7504-4459-a12d-6630796f845e)
+
+![6dc471c6](https://github.com/user-attachments/assets/15ec1e3a-f80b-45c8-8ff5-7aa3fa507a13)![6dc471c6](https://github.com/user-attachments/assets/15ec1e3a-f80b-45c8-8ff5-7aa3fa507a13)
 
 
 
