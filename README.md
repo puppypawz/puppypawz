@@ -48,7 +48,7 @@ i am part of the true crime commuinty, for i find many cases (mainly academy man
 
 
 
-![0768763f](https://github.com/user-attachments/assets/07e6b566-082f-4bc5-bc4a-e3ad6e1fb19e)![0768763f](https://github.com/user-attachments/assets/07e6b566-082f-4bc5-bc4a-e3ad6e1fb19e)
+![e0f37ba8](https://github.com/user-attachments/assets/e576b49a-6905-4971-be27-b9f64d173870)![e0f37ba8](https://github.com/user-attachments/assets/e576b49a-6905-4971-be27-b9f64d173870)
 
 
 
