@@ -15,7 +15,7 @@
 
 
 <p align="center">
-( ´ཀ` ) donnie / andre / simon ^_^ !! ☠︎︎
+ଘ(∩^o^)⊃━☆゜donnie / andre / simon ^_^ !! ☠︎︎
 </p>
 
 
