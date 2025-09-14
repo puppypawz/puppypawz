@@ -28,7 +28,7 @@
 
 
 <p align="center">
-  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans , proship + darkship  "( – ⌓ – ) 
+  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans  ||  iwc...: under 14 or over 20, people who condone actions made by tcc perps "( – ⌓ – ) 
 </p>
 
 
@@ -43,8 +43,7 @@
 </p>
 
 <p align="center">
-i am part of the true crime commuinty, for i find many cases (mainly academy maniacs and andrew blaze) to be intresting. i do NOT condone any actions by perpertators. may those poor souls who lost their lives in these cases rest dearly; for they never deserved what happened to them. please do NOT interact if you support any actions made by these people.
-</p>
+i am part of the true crime commuinty, for i find many cases (mainly academy maniacs and andrew blaze) to be intresting. i do NOT condone any actions by perpertators. may those poor souls who lost their lives in these cases rest dearly; for they never deserved what happened to them.
 
 
 
