@@ -28,14 +28,14 @@
 
 
 <p align="center">
-  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans  ||  iwc...: under 14 or over 20, people who condone actions made by tcc perps "( – ⌓ – ) 
+  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans, if you just use me to vent  ||  iwc...: under 14 or over 20, people who condone actions made by tcc perps "( – ⌓ – ) 
 </p>
 
 
 
 
 <p align="center">
-  im off-tab most of the time watching something so whisper to me if you can !! (im also a huge movie freak hehe...) 
+  please do not vent to me. this is  a boundary. i dont like when people vent to me because i dont know what to say. only close friends can vent. but if we are simply just mutuals, i dont want to hear it. im sorry. i do hope things get better though. im just going through my own shit right now. 
 </p>
 
 <p align="center">
