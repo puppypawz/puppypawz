@@ -21,14 +21,14 @@
 
 
 <p align="center">
-  ( ˶ˆᗜˆ˵ ) i love zero day , stranger things  jake gyllenhaal , the academy maniacs case,  william hellfire + joey smack , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
+  ( ˶ˆᗜˆ˵ ) i love zero day , joost klein , eurovision , TCC , stranger things  jake gyllenhaal , the academy maniacs case,  william hellfire + joey smack , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
 </p>
 
 
 
 
 <p align="center">
-  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans, if you just use me to vent  ||  iwc...: under 15 or over 20
+  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , tcoaal fans, if you just use me to vent  ||  iwc...: under 15 or over 20 
 </p>
 
 
