@@ -38,11 +38,6 @@
   jonthan byers fictionkin !!!
 </p>
 
-<p align="center">
- im also going through a lot right now so i might be dry ^_^; between work and something quite drastic happening i might be upset a lot !! so i do apologize if i act off or distant. i promise im trying my best to make everyone happy!! 
-</p>
-
-
 
 
 <img src="https://dividers.crd.co/assets/images/gallery09/49afd18b.png?v=05d33f91" alt="Untitled"/><img width="385" height="20" alt="image" src="https://github.com/user-attachments/assets/496ba488-7192-48e6-b406-c48fafb6a2f7" />
