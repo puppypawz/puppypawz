@@ -21,7 +21,7 @@
 
 
 <p align="center">
-  ( ˶ˆᗜˆ˵ ) i love zero day , joost klein , eurovision , TCC , stranger things  jake gyllenhaal , the academy maniacs case,  william hellfire + joey smack , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
+  ( ˶ˆᗜˆ˵ ) i love zero day , joost klein , eurovision , TCC , stranger things , jake gyllenhaal , the academy maniacs case,  william hellfire + joey smack , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
 </p>
 
 
