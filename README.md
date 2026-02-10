@@ -15,35 +15,33 @@
 
 
 <p align="center">
-ଘ(∩^o^)⊃━☆゜donnie / andre / simon ^_^ !! ☠︎︎
+ଘ(∩^o^)⊃━☆゜simon / donnie / jonathan ^_^ !! ☠︎︎
 </p>
 
 
 
 <p align="center">
-  ( ˶ˆᗜˆ˵ ) i love zero day , hannibal , jake gyllenhaal , the academy maniacs case, welcome to eltingville , homestuck , william hellfire + joey smack , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
-</p>
-
-
-
-
-<p align="center">
-  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans, if you just use me to vent  ||  iwc...: under 14 or over 20, people who condone actions made by tcc perps "( – ⌓ – ) 
+  ( ˶ˆᗜˆ˵ ) i love zero day , stranger things  jake gyllenhaal , the academy maniacs case,  william hellfire + joey smack , duck! the carbine high massacre , elephant 2003 , kmfdm , puppies , and other stuff (˶' ꒳ '˶) 
 </p>
 
 
 
 
 <p align="center">
-  please do not vent to me. this is  a boundary. i dont like when people vent to me because i dont know what to say. only close friends can vent. but if we are simply just mutuals, i dont want to hear it. im sorry. i do hope things get better though. im just going through my own shit right now. 
+  (っ- ‸ - ς)  dni ... : hazbin/helluva fandom , basic dni , tcoaal fans, if you just use me to vent  ||  iwc...: under 15 or over 20
+</p>
+
+
+
+
+<p align="center">
+  jonthan byers fictionkin !!!
 </p>
 
 <p align="center">
  im also going through a lot right now so i might be dry ^_^; between work and something quite drastic happening i might be upset a lot !! so i do apologize if i act off or distant. i promise im trying my best to make everyone happy!! 
 </p>
 
-<p align="center">
-i am part of the true crime commuinty, for i find many cases (mainly academy maniacs and andrew blaze) to be intresting. i do NOT condone any actions by perpertators. may those poor souls who lost their lives in these cases rest dearly; for they never deserved what happened to them.
 
 
 
